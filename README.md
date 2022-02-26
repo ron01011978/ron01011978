@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @ron01011978
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+ron01011978/ron01011978 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->i am a musician looking to further my 28 years study of the guitar i am looking for donations to purhase new equipment my BTC address is
+3HDrrchnmYMvvAvn9gmjwWZixBq3zsKjmc.   all bitcoin donation are greatly appreciated all fellow musicians i love to collaborate on guitar 
+poetry,song lyrics i write my own songs as well as create my own instrumentals im on you tube chanel name is Ronald Charrette
+Im a 60s rock fan
